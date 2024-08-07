@@ -1,1 +1,1 @@
-lucky man!
+lucky girl
